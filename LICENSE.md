@@ -1,4 +1,4 @@
-
+new Extension for Affinity Photo for macOS - grid systems and smart objects offers the most advanced Affinity Photo for macOS extension, with grid systems and smart objects. Ideal
 
 
 
